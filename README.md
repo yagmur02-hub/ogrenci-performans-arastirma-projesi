@@ -1,0 +1,1 @@
+# -rencilerin-Haftal-k-al-ma-S-releri-ve-Devams-zl-k-Durumlar-ile-Akademik-Ba-ar-lar-Aras-ndaki-li-ki
